@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am 20 years old, and I am currently studying engineering in virtual environments and digital business. Passionate about learning new technologies and web development practices. One of my outstanding characteristics is the use of frameworks in a self-taught way, my profile places me as a web developer and designer, as well as a creator of interactive experiences, my expectation is to obtain knowledge and experience to advance in the labor field. I am a creative and analytical person, so I make value proposals in the projects in which I am involved.
+I am 21 years old, and I am currently studying engineering in virtual environments and digital business. Passionate about learning new technologies and web development practices. One of my outstanding characteristics is the use of frameworks in a self-taught way, my profile places me as a web developer and designer, as well as a creator of interactive experiences, my expectation is to obtain knowledge and experience to advance in the labor field. I am a creative and analytical person, so I make value proposals in the projects in which I am involved.
 
 
 ## 🌐 Socials:
